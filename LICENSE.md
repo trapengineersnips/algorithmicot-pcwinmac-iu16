@@ -1,4 +1,4 @@
-# 
+# توربو algorithmic trading bot أدوات لـ Mac OS | جديد algorithmic trading bot أدوات لـ PC Windows. مع تحسين رسوم الغاز و معالجة الدفعات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
